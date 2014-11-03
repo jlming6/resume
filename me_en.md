@@ -1,8 +1,13 @@
 # Mingkui Liu
 +86 (188) 1072-9012
 +1 (310) 980-2018
-<liumingkui@gmail.com> 
+<liumingkui@gmail.com>
 <http://www.linkedin.com/in/mingkuiliu>
+
+
+Computer Science, B.S.  
+Fall 2006 - Spring 2011  
+California Polytechnic State University, San Luis Obispo  
 
 ### Employment
 ------
