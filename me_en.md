@@ -1,11 +1,8 @@
 # Mingkui Liu
 +86 (188) 1072-9012
-
 +1 (310) 980-2018
-
-liumingkui@gmail.com
-
-http://www.linkedin.com/in/mingkuiliu
+<liumingkui@gmail.com> 
+<http://www.linkedin.com/in/mingkuiliu>
 
 ### Employment
 ------
